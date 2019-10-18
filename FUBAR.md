@@ -10,6 +10,11 @@ Let's break it!!!!
 
 Would you rather fight a horse-sized duck or 100 duck-sized horses?
 
+
 have you heard about the restaurant in outer space? great food but no atmosphere
 
 When I see lovers' names carved in a tree, I don't think it's sweet. I just think it's suprising how many people bring a knife on a date.
+=======
+have you heard about the restaurant in outer space? great food but no atmosphere.
+
+Atheism is a non-prophet organization.
