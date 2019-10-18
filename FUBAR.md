@@ -6,3 +6,6 @@ I wanted to be a doctor but I didn’t have the patients.
 -hahahaha
 
 Try this one: Stistically...9 out of 10 injections are in vein.
+Let's break it!!!!
+
+Would you rather fight a horse-sized duck or 100 duck-sized horses?
