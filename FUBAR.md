@@ -10,4 +10,6 @@ Let's break it!!!!
 
 Would you rather fight a horse-sized duck or 100 duck-sized horses?
 
-have you heard about the restaurant in outer space? great food but no atmosphere
+have you heard about the restaurant in outer space? great food but no atmosphere.
+
+Atheism is a non-prophet organization.
